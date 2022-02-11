@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @petonyy
+- 👀 I’m interested in nothing
+- 🌱 I’m currently learning "everything about coding"
+-
+-
+-
+-
+-
+-
